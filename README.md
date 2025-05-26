@@ -1,5 +1,5 @@
 # Hi👋,I'm  Sai Prasad :
-I'M Currently Learning
+CSE(AI&ML)
 
 
 ## 🌐 Socials:
