@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/402689a2-650e-4e49-b17d-48a5a6bfdf49)
+![WhatsApp Image 2025-05-26 at 17 32 04_ec446227](https://github.com/user-attachments/assets/aec47cb0-dfbc-4b2b-8872-77036ac3194a)
+
 
 # Hi👋,I'm  Sai Prasad :
 CSE(AI&ML)
