@@ -1,4 +1,5 @@
-![WhatsApp Image 2025-05-26 at 17 37 04_98fc1d39](https://github.com/user-attachments/assets/b156e523-1adc-4b2c-a835-cbed97833fb2)
+![WhatsApp Image 2025-05-26 at 17 39 05_9a91e34f](https://github.com/user-attachments/assets/3b728997-99cc-4093-83fb-3a6d4425c664)
+
 
 # Hi👋,I'm  Sai Prasad :
 CSE(AI&ML)
